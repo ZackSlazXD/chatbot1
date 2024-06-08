@@ -22,8 +22,8 @@
 **Contact Us:**
 
 * Visit us at: 
-* Call us at: 010-444 1612
-* Website: [Gym Website] (if applicable)
+* Call Adib Muzaffar at: 010-444 1612
+* Website: https://gamma.app/docs/Welcome-to-Samurai-Fitness-vg9ov2effelcly0?mode=doc
 
 **Don't wait!** Come join the Samurai Fitness family and embark on your fitness journey today!
 
@@ -52,7 +52,10 @@ We also welcome walk-in customers! Walk-in fees are slightly higher than members
 Walk-in fees is RM5
 Join the Samurai Fitness Community Today!
 
-Ready to embark on your fitness journey? Visit Samurai Fitness or contact us at [Gym Phone Number] or [Gym Email Address] (if available) to learn more. Let's unleash your inner warrior together!
+Ready to embark on your fitness journey? Visit Samurai Fitness or contact us at 010-444 1612 or samuraifitness@gmail.com  to learn more. Let's unleash your inner warrior together!
+
+Time open:
+Everyday from 11am to 11pm (Except wednesday)
 
 Additional Tips for Promotion:
 
